@@ -1,3 +1,0 @@
-If You Somehow Find This..
-Always Remember...
-Sonic...The...Hedgehog..
